@@ -1,5 +1,5 @@
 # DMCA-Free-Stuff
-DMCA Free Music / tunes / sound effects for usage on streaming / recorded content / project development. 
+DMCA Free Music / tunes / sound effects for usage on streaming / recorded content / project development. (DMCA-Free as in provides the necessary licenses to battle any DMCA claim and should be safe from receiving any DMCA claims.) Some are paid options and some are available for free. Though, if you do happen to use the free resources and think they are worth a reward, please do give the creator a reward! Thank you very much and I hope you enjoy this list.
 
 ## If you know of music that is not listed here that is available with terms/licensing that is documented upfront and is available for use (better if including for commercial use), then please open up an Issue with a link to the information (Main page/Download page and also terms/license page if possible). I will try to keep this updated.  
 
