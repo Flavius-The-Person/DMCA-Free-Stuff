@@ -76,3 +76,12 @@ That is great, happy to be on that list :)
 If this is for streaming and recording content and not for game development, you can also mention that my entire Spotify library is content id free as well,  which can be found at https://abstraction.rocks/
 
 Oh! By the way, Abstraction / Tallbeard Studios also streams the development of his music here: https://www.twitch.tv/ben_burnes 
+
+
+
+### Stream Beats
+
+https://www.streambeats.com/
+
+Ofcourse I was going to add this, can't believe I originally forgot!
+
