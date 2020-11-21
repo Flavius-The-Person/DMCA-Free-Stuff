@@ -70,4 +70,9 @@ The Maker's Eden OST, Act 1 & 2
 Music within in the following albums can NOT be used in short films and movies:
 Stadtgeist OST '
 
+Ben is amazing: 
+ben_burnesToday at 9:10 AM
+That is great, happy to be on that list :)
+If this is for streaming and recording content and not for game development, you can also mention that my entire Spotify library is content id free as well,  which can be found at https://abstraction.rocks/
+
 Oh! By the way, Abstraction / Tallbeard Studios also streams the development of his music here: https://www.twitch.tv/ben_burnes 
