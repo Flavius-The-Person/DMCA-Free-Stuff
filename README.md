@@ -42,7 +42,7 @@ Music within in the following albums can NOT be used in short films and movies:
 Stadtgeist OST '
 
 Ben is amazing: 
-ben_burnesToday at 9:10 AM
+ben_burnes Today at 9:10 AM
 That is great, happy to be on that list :)
 If this is for streaming and recording content and not for game development, you can also mention that my entire Spotify library is content id free as well,  which can be found at https://abstraction.rocks/
 
