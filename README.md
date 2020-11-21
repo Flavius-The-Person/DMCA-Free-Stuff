@@ -50,6 +50,22 @@ Oh! By the way, Abstraction / Tallbeard Studios also streams the development of 
 
 
 
+### Incompetech
+
+https://incompetech.com/
+
+Terms and Conditions / Crediting / FAQ : https://incompetech.com/music/royalty-free/faq.html
+
+Can I use your music...
+for YouTube videos?	 | Yes, AND you can monetize the videos. Be sure to credit me. [More on YouTube]
+on streaming sites?	 | Yes. Be sure to credit me. [More on Streaming]
+in live productions? |	Yes. Be sure to credit me.
+in my store?	       | Yes. Be sure to credit me or purchase a license.
+as on-hold music?	   | Yes. Be sure to credit me or purchase a license.
+for something else?	 | Probably. Be sure to credit me or purchase a license.
+
+
+
 ### Tungerman
 
 https://tungerman.itch.io/tearjerker-music-pack
