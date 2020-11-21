@@ -43,7 +43,7 @@ https://rpgmaker.net/resources/279/
 
 
 
-### Tallbeard Studios 
+### Tallbeard Studios / Abstraction / Ben Burnes
 
 https://tallbeard.itch.io/music-loop-bundle
 
