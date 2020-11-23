@@ -109,3 +109,20 @@ https://www.streambeats.com/
 
 Ofcourse I was going to add this, can't believe I originally forgot!
 
+
+
+### Pretzel Rocks
+
+https://www.pretzel.rocks/
+
+
+
+### Epidemic Sounds
+
+https://www.epidemicsound.com/
+
+
+
+### Monstercat
+
+https://www.monstercat.com/
