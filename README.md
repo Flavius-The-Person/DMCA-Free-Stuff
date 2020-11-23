@@ -79,22 +79,6 @@ https://tungerman.itch.io/tearjerker-music-pack
 
 
 
-### Margor3000 - ELYSIUM OST
-
-https://rpgmaker.net/resources/243/
-
--'The full soundtrack (OST Vol.1 & 2) is completely free to use, also for commercial purposes. Credits go to: Marcel Scheitza'
-
-
-
-### Cyanaspect - Boss Battle Music
-
-https://rpgmaker.net/resources/279/
-
--'I'm here to share some music I created recently. I'm quite new to making music, so please keep that in mind. Feel free to use it, whether it's for commercial or non-commersial use.'
-
-
-
 ### Cactusdude 
 
 https://itch.io/profile/cactusdude
