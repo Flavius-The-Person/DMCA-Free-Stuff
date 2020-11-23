@@ -9,7 +9,7 @@
 
 https://www.humblebundle.com/software/big-royaltyfree-music-software
 
-- If the bundle expires the creator's website can be found here: http://darkfantasystudio.com/ 
+- If the bundle expires, or if you want to preview the songs, the creator's website can be found here: http://darkfantasystudio.com/ 
 - It looks like the bundle comes with their premium license version: http://darkfantasystudio.com/premium-licence/
 
 
