@@ -66,6 +66,32 @@ for something else?	 | Probably. Be sure to credit me or purchase a license.
 
 
 
+### OCRemnix
+
+https://ocremix.org/
+
+https://ocremix.org/info/Content_Policy
+
+If you're using our content elsewhere ("Terms of Use")...
+You can use OC ReMix content in your videos, streams, podcasts, etc. or at parties, stores, clubs, etc. as long as you're not profiting directly from its usage.
+This means that if you're using a mix in a YouTube video or Twitch stream, for example, you can still have ads, as long as the video isn't just the mix & you're actually adding something.
+Please give credit where credit is due & make every effort possible to mention http://ocremix.org AND the artist(s) involved.
+If you're sharing files with others, please don't rename them or change the tags (this is fine for personal use).
+If there's a problem with how you're using the content, we reserve the right to terminate your license at any time.
+This summary of the Terms of Use is here to make your life easier, but doesn't override or change the full version below. If you've still got questions after reading both, please let us know!
+
+
+
+### Anttis
+
+http://anttismusic.blogspot.com/
+
+https://www.soundclick.com/artist/default.cfm?bandID=1277008&content=about
+
+https://www.reddit.com/r/opensource/comments/gyshoj/i_have_released_my_2000_instrumental_pieces_free/
+
+
+
 ### Tungerman
 
 https://tungerman.itch.io/tearjerker-music-pack
