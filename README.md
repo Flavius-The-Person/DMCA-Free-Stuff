@@ -136,3 +136,13 @@ https://www.epidemicsound.com/
 ### Monstercat
 
 https://www.monstercat.com/
+
+
+
+### Wintergatan.net/
+
+https://wintergatan.net/
+
+License: https://wintergatan.net/products/license-to-use-wintergatan-music-for-video-and-livestream-background-music
+
+^ double check 'Condition 2' if you plan to use this one maybe?
